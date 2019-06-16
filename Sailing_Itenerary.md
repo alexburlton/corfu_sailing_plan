@@ -8,6 +8,7 @@
 - Sivota Mourtos
 - Kassiopi
     * Long sail north
+- Maybe Mandraki Harbour (it's quite close to Corfu so the Saturday morning sail would be short)
 - Back to Corfu
 
 ### Notes:
